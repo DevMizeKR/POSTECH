@@ -1,2 +1,1 @@
 # POSTECH
- In POSTECH
